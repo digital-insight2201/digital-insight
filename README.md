@@ -3,6 +3,7 @@
 ## Intro
 
 AI & Tech powered organization.
+<br>
 
 ## We Are Launching New Voice Models🎉🎉
 
@@ -12,10 +13,12 @@ AI & Tech powered organization.
 </ul>
 
 <i>Wait! Lcw1 will come out later. Please continue following us for the announcement.</i>
+<br>
 
 ## Download Link👇
 
 [Voice Models from aDrive]()
+<br>
 
 ## Contributor
 
