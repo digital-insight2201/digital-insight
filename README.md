@@ -17,7 +17,11 @@ AI & Tech powered organization.
 
 ## Download Link👇
 
-[Voice Models from aDrive]()
+[Voice Models from aDrive](https://www.123865.com/s/oF2sTd-7LBWh)
+
+or
+
+[Second link](https://www.123684.com/s/oF2sTd-7LBWh)
 <br>
 
 ## Contributor
